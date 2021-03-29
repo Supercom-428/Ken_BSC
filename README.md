@@ -2,7 +2,7 @@
 
 Hello, Ken.
 
-For a good communication, we can discuss more details via skype, telegram and so on...
+For a good communication, we can DISCUSS and CALL more details via skype, telegram and so on...
 
 Freelancer.com chat is boring and insensitive.
 
